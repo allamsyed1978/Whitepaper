@@ -1,4 +1,5 @@
 # Whitepaper1 - Radical Leadership in Business Transformation
+![Radical Leadership](https://github.com/user-attachments/assets/6af4886f-62f7-43c8-ab72-de5b617f792c)
 
 
 ## Executive Summary
