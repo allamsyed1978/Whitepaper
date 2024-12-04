@@ -1,4 +1,4 @@
-# Whitepaper1
+# Whitepaper1 - Radical Leadership in Business Transformation
 
 Executive Summary
 Transformation is no longer an option; it’s a necessity for organizations to thrive in today’s dynamic world. However, driving transformation is fraught with challenges—resistance, fear, and the ever-present inertia of established practices. This white paper explores the role of leadership in overcoming these barriers and charts a path toward successful transformation through radical, visionary leadership.
